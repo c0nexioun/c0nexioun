@@ -2,9 +2,10 @@
 ㅤ
 
 ㅤ
-
+</p>
+</p>
 <p align="center">
-<img width="550" height="314" alt="Chud Swapful" src="https://file.garden/aSq0YRZqpx5ZY4GH/b1zqol.gif" />
+<img width="436"  alt="ac onlycodemeister (1)" src="https://github.com/user-attachments/assets/68fcc4d7-9663-44ea-944a-e6fa96402d92" />
 </p>
 </p>
 <div align="center">
@@ -22,7 +23,7 @@ heㅤ/ㅤthey
  </p>
 </p>
 <div align="center">
-ㅤcudㅤisㅤokㅤ,ㅤfeel free to intㅤ,
+ㅤcudㅤisㅤokㅤ,ㅤfeelㅤfreeㅤtoㅤintㅤ,
   ㅤ
   <div align="center">
 ㅤsignㅤataㅤifㅤuㅤwannaㅤbeㅤoomfsㅤmaybㅤ.
