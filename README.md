@@ -5,8 +5,7 @@
 </p>
 </p>
 <p align="center">
-<img width="436"  alt="ac onlycodemeister (1)" src="https://github.com/user-attachments/assets/68fcc4d7-9663-44ea-944a-e6fa96402d92" />
-</p>
+ <img width="448"  alt="HBbuQDpawAAzEWf" src="https://github.com/user-attachments/assets/0a87eea4-cc0b-46ad-bc57-d61bb0a94eb1" /></p>
 </p>
 <div align="center">
  </p>
