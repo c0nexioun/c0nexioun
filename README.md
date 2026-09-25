@@ -14,7 +14,7 @@
   ㅤ
 <div align="center">
 
-[RENTRY](https://rentry.co/cutezam)ㅤㅤ[PRNS](https://pronouns.cc/@patchbreaking)ㅤㅤ[ATA](https://partypoob.atabook.org/)
+[RENTRY](https://rentry.co/cutezam)ㅤㅤ[STRAW](https://c0nexioun.straw.page/)ㅤ[ATA](https://partypoob.atabook.org/)
 
 </div>
  <div align="center">
