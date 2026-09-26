@@ -5,7 +5,7 @@
 </p>
 </p>
 <p align="center">
-<img width="320" alt="sharpness-conexion" src="https://github.com/user-attachments/assets/6b13e129-d307-4216-b3a6-8938d49fde9a" />
+<img width="320" alt="sharpness-conexion (1)" src="https://github.com/user-attachments/assets/6a913de3-1063-45c7-baf2-059b357698a1" />
 </p>
 <div align="center">
  </p>
