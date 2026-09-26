@@ -14,7 +14,7 @@
   ㅤ
 <div align="center">
 
-[RENTRY](https://rentry.co/deathtrappers)ㅤ[STRAW](https://c0nexioun.straw.page/)ㅤㅤ[ATA](https://sharpnesss.atabook.org/)
+[RENTRY](https://rentry.co/deathtrappers) [STRAW](https://c0nexioun.straw.page/) [ATA](https://sharpnesss.atabook.org/)
 
 </div>
  <div align="center">
